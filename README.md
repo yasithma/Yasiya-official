@@ -1,3 +1,8 @@
-# Yasiya-official
+#  HI Yasiya-official
 MUSIC PISSO BOT YASITH MATHEESHA 
-whatsapp bot group 
+😇 I'm not programmer
+
+👀 I’m interested on whatsapp bots
+
+🌱 I’m currently learning JAVASCRIPT
+
