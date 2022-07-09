@@ -1,4 +1,6 @@
 #  HI  Yasiya-official
+https://raw.githubusercontent.com/TheDudeThatCode/TheDudeThatCode/master/Assets/Hi.gif
+
 MUSIC PISSO BOT YASITH MATHEESHA 
 
 😇 I'm not programmer
